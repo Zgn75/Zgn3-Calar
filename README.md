@@ -16,7 +16,7 @@ Developer: Zgn (me)
 Program idea: EmirVr
 
 
-Big thanks to: YusufZiyaGG, Zeus7005
+Special thanks to: YusufZiyaGG, Zeus7005
 
 
 
@@ -29,3 +29,6 @@ https://www.mediafire.com/file/pi3tj3yjtduag8l/Zgn3_Setup.rar/file
 
 
 (I know the file is too big idk how i did that sorry bye, i think its from the songs tho loll)
+
+
+If i did spell words wrong, sorry my english is not good too much.
