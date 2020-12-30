@@ -1,9 +1,7 @@
-WARNING!
+# WARNING!
 
 
 READ IT TO THE END IF YOU WANT TO DOWNLOAD THE APPLICATION.
-
-
 
 # Zgn3-Calar
 Demo version of Mp3 Player by me. (Lang: Turkish)
