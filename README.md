@@ -28,4 +28,4 @@ Big thanks to: YusufZiyaGG, Zeus7005
 https://www.mediafire.com/file/pi3tj3yjtduag8l/Zgn3_Setup.rar/file
 
 
-(I know the file is too big idk how i did that sorry bye)
+(I know the file is too big idk how i did that sorry bye, i think its from the songs tho loll)
