@@ -7,7 +7,7 @@ READ IT TO THE END IF YOU WANT TO DOWNLOAD THE APPLICATION.
 Demo version of Mp3 Player by me. (Lang: Turkish)
 
 
-Credits:
+# Credits:
 
 
 Developer: Zgn (me)
